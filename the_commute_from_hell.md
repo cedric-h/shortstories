@@ -49,7 +49,7 @@ It's painfully easy to find yourself, repeatedly, in right-only lanes when all y
 
 Pressed into such a situation -- a particularly difficult situation for someone who had only recently started driving and had been thoroughly deracinated and planted in unfamiliar terrain 2,000 miles from home -- I was left with, I felt, very few options.
 
-One of them is simply to wait for all of the cars on your left to make their turn, then, illegally but perhaps still safely, go straight. (Make sure to mentally apologize to the poor sods behind you).
+One of them was simply to wait for all of the cars on your left to make their turn, then, illegally but perhaps still safely, go straight. (Make sure to mentally apologize to the poor sods behind you).
 
 However, if you're starving to death and panicky, you might shoot forward in the blind hope that the car to your left is actually just going straight after all, and then punch the break when you realize that they are, in fact, turning, right in front of you, begging you to ram your car into their passenger door.
 
