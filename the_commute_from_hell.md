@@ -35,8 +35,7 @@ Almost as soon as I did so, Salt Lake City's open highways and distant high rise
 
 I knew my apartment was south of the city center. I knew I had to be north of the city center right now.
 
-All I had to do, then, was crawl south, toward the city center. And sure enough, I found them. Even if I hadn't
-known their general direction, all I had to do was make it to somewhere with a clear view of the horizon.
+All I had to do, then, was crawl south, toward the city center. And sure enough, in short order I located the jumble of rectangles on the horizon that signaled downtown Salt Lake City. Even if I hadn't known their general direction, all I had to do was make it to somewhere with a clear view of the horizon.
 
 It's pretty hard to miss the really tall buildings.
 
