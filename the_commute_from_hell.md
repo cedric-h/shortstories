@@ -47,7 +47,7 @@ The problem with trying to crawl parallel to a major highway like that is that e
 
 It's painfully easy to find yourself, repeatedly, in right-only lanes when all you want to do is go straight.
 
-Pressed into such a difficult situation, you're left with very few options.
+Pressed into such a situation -- a particularly difficult situation for someone who had only recently started driving and had been thoroughly deracinated and planted in unfamiliar terrain 2,000 miles from home -- I was left with, I felt, very few options.
 
 One of them is simply to wait for all of the cars on your left to make their turn, then, illegally but perhaps still safely, go straight. (Make sure to mentally apologize to the poor sods behind you).
 
