@@ -19,7 +19,7 @@ My phone died before it could read it out to me.
 ## Bad News
 
 No harm, no foul.
-It was my second day at work at work after all,
+It was my second day at work after all,
 my third or fourth time driving from work home.
 I should've been able to identify a viable exit.
 
@@ -91,7 +91,7 @@ more homeless-looking people had coalesced outside of the gas station.
 
 The rent-a-cop laughed with them and lit a long brown cigarillo.
 
-Whatever last bastion of safety he represented, I decided, was broken.
+Whatever last bastion of safety he represented, I had capriciously decided, was broken.
 
 I put my car into reverse and pulled out of the gas station.
 
@@ -109,7 +109,7 @@ I cruised back home at a leisurely pace and parked where I had been parking my c
 
 Right before I turned off my car, a white sedan pulled out of the gated enclosure of a nearby mechanic's.
 
-He stopped right outside of the enclosure and made a hostile form of eye contact with,
+He stopped right outside of the enclosure and made a hostile form of eye contact with me,
 piercing right through his open window on through my windshield.
 
 He whipped out his phone and began chanting exultantly, "the fucking parking guy, RIGHT IN FRONT OF ME. right-in-fucking-front of me!"
